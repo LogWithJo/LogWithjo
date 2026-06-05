@@ -15,6 +15,8 @@
 
 - ⚡ Fun fact **I think I am BodyBuilder**
 
+> Getting 1 percent better every day counts for a lot in the long run. ( It's my Plan 🤫🤫🤫 )
+
 <p align="left">
 </p>
 
